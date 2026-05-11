@@ -1,4 +1,4 @@
-#  
+#  vip Scripts for dress to impress is the best dress to impress Script, featuring aimbot and private server access. Safe and powerful for all your
 
 
 
